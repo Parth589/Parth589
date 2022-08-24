@@ -1,7 +1,7 @@
-# Hi there 👋
+# Hi there, I am p4rth 🖥
 
 
-
+I'm a student.
 
 currently working on,
 
